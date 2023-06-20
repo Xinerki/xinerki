@@ -1,5 +1,5 @@
 ## IT'S MEEE
-### im FUNNY
+### im FUNNY im SILLY im SO AWESOME
 <img src="https://b.catgirlsare.sexy/8T1Y2LlSKH_g.jpg" height=80/>
 
 # what i do
@@ -9,11 +9,11 @@ usually fivem stuff but expect to see more than that <img src="https://b.catgirl
 - https://github.com/Xinerki/deck-screenshot-sync
 - https://github.com/Xinerki/autops2
 - idk you tell me
----
+
+# dont you feel ..  silly? dont you feel ...stupid? dont you feel  <br>    a little ashamed?
 there is good, there is evil
 
 <img src="https://b.catgirlsare.sexy/0lyFcE80OPTF.gif" height=50/><img src="https://b.catgirlsare.sexy/EFV6qhoPaGSx.png" height=50/>
-
 
 -
 
