@@ -1,16 +1,16 @@
-### Hi there 👋
+## IT'S MEEE
+### im FUNNY
 
-<!--
-**Xinerki/xinerki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# what i do
+usually fivem stuff but expect to see more than that
+- https://github.com/Xinerki/kgv-hipfire
+- https://github.com/Xinerki/kgv-sonic
+- https://github.com/Xinerki/deck-screenshot-sync
+- https://github.com/Xinerki/autops2
+- idk you tell me
+---
 
-Here are some ideas to get you started:
+<img src="https://b.catgirlsare.sexy/0lyFcE80OPTF.gif" height=50/><img src="https://b.catgirlsare.sexy/EFV6qhoPaGSx.png" height=50/>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![help me](https://b.catgirlsare.sexy/UltrEWfts8b8.png)
+![placek](https://b.catgirlsare.sexy/0lyFcE80OPTF.gif)![placek_evil](https://b.catgirlsare.sexy/EFV6qhoPaGSx.png)
