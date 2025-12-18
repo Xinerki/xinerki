@@ -1,11 +1,12 @@
 ## IT'S MEEE
+# https://kiwigrape.io/
 ### im FUNNY im SILLY im SO AWESOME
 <img src="https://b.catgirlsare.sexy/8T1Y2LlSKH_g.jpg" height=80/>
 
 # what i do
-usually fivem stuff but expect to see more than that <img src="https://b.catgirlsare.sexy/dOh-uXr53Pt1.gif" height=25/>
-- https://github.com/Xinerki/kgv-hipfire
-- https://github.com/Xinerki/kgv-sonic
+i mostly do whatever nonsense or Godot these days - mostly private repos!!??? <img src="https://b.catgirlsare.sexy/dOh-uXr53Pt1.gif" height=25/>
+- https://github.com/Xinerki/dethrace-psp (this is so cool)
+- https://github.com/Xinerki/gta3-audio-tool
 - https://github.com/Xinerki/deck-screenshot-sync
 - https://github.com/Xinerki/autops2
 - idk you tell me
